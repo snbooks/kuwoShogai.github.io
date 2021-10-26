@@ -1,1 +1,1 @@
-# kuwoShogai.github.io
+# kuwosn.github.io
